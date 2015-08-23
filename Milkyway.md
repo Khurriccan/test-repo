@@ -1,0 +1,1 @@
+it ia very small galaxy
